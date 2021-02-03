@@ -1,0 +1,1 @@
+# yastoboi.github.io
